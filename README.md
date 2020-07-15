@@ -1,0 +1,1 @@
+# BNPParibas_Blurred
